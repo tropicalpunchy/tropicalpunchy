@@ -2,4 +2,4 @@
 
 ![](https://komarev.com/ghpvc/?username=tropicalpunchy)
 
-📫 How to reach me: https://www.linkedin.com/in/connor-mcnally1/
+📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/connor-mcnally1/)
